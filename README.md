@@ -7,3 +7,6 @@ This repository is updating...
 
 
 [محل دفن لطفعلی خان زند](https://github.com/Melanee-Melanee/History-of-Iran-and-World/blob/main/%D9%85%D8%AD%D9%84%20%D8%AF%D9%81%D9%86%20%D9%84%D8%B7%D9%81%D8%B9%D9%84%DB%8C%20%D8%AE%D8%A7%D9%86%20%D8%B2%D9%86%D8%AF/Lotf%20ali%20khan%20zand%20bural%20place.md)
+
+
+[کاخ گلستان](https://github.com/Melanee-Melanee/History-of-Iran-and-World/blob/main/%DA%A9%D8%A7%D8%AE%20%DA%AF%D9%84%D8%B3%D8%AA%D8%A7%D9%86/Golestan%20Palace.md)
