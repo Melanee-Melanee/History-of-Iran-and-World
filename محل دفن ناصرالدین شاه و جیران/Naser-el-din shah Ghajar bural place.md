@@ -8,7 +8,8 @@
 ## محل دفن ناصرالدین شاه قاجار: شاه عبدالعظیم تهران رو به روی صحن امام خمینی زیر لوستر سبز رنگ و به فاصله حدود سه چهار متری از قبر جیران خاتون
 ## تاریخ عکاسی: مرداد ۱۴۰۲ هجری خورشیدی 
 
+![محل دفن ناصرالدین شاه قاجار](https://github.com/Melanee-Melanee/History-of-Iran-and-World/assets/74653444/d668ec87-314d-4441-bfc6-bb9826e081d7)
 
-![محل دفن ناصرالدین شاه قاجار](https://github.com/Melanee-Melanee/History-of-Iran-and-World/assets/74653444/a7c73c3b-9f4b-4842-ae24-2a1ccc76bec5)
+
 
 
