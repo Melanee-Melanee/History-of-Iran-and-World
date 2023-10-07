@@ -10,3 +10,6 @@ This repository is updating...
 
 
 [کاخ گلستان](https://github.com/Melanee-Melanee/History-of-Iran-and-World/blob/main/%DA%A9%D8%A7%D8%AE%20%DA%AF%D9%84%D8%B3%D8%AA%D8%A7%D9%86/Golestan%20Palace.md)
+
+
+[کاخ صاحبقرانیه](https://github.com/Melanee-Melanee/History-of-Iran-and-World/blob/main/%DA%A9%D8%A7%D8%AE%20%D8%B5%D8%A7%D8%AD%D8%A8%D9%82%D8%B1%D8%A7%D9%86%DB%8C%D9%87/Saheb%20gharanie%20Palace.md)
