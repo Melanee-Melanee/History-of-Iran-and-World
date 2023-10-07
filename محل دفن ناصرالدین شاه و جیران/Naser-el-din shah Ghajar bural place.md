@@ -1,10 +1,14 @@
-# Jeyran khatoon bural place:
-# محل دفن جیران خاتون: شاه عبدالعظیم
-# تاریخ عکاسی: مرداد ۱۴۰۲ هجری خورشیدی
-![Jeyran bural place](https://github.com/Melanee-Melanee/History-of-World/assets/74653444/999683b6-9f76-4db6-a290-5c0fa8f11a95)
+## محل دفن جیران خاتون همسر ناصرالدین شاه قاجار و فرزندشان: شاه عبدالعظیم تهران رو به روی صحن امام خمینی
+## تاریخ عکاسی: مرداد ۱۴۰۲ هجری خورشیدی
+
+![محل دفن جیران و فرزندش](https://github.com/Melanee-Melanee/History-of-Iran-and-World/assets/74653444/a30547c2-a7a2-4451-aa80-a3add1caa83d)
 
 
-# Naser-el-din shah Ghajar bural place:
-# محل دفن ناصرالدین شاه قاجار: شاه عبدالعظیم
-# تاریخ عکاسی: مرداد ۱۴۰۲ هجری خورشیدی 
-![Naser-el-din shah Ghajar bural place](https://github.com/Melanee-Melanee/History-of-World/assets/74653444/c082af9b-db51-49ba-85c1-34c17f991645)
+
+## محل دفن ناصرالدین شاه قاجار: شاه عبدالعظیم تهران رو به روی صحن امام خمینی زیر لوستر سبز رنگ و به فاصله حدود سه چهار متری از قبر جیران خاتون
+## تاریخ عکاسی: مرداد ۱۴۰۲ هجری خورشیدی 
+
+
+![محل دفن ناصرالدین شاه قاجار](https://github.com/Melanee-Melanee/History-of-Iran-and-World/assets/74653444/a7c73c3b-9f4b-4842-ae24-2a1ccc76bec5)
+
+
