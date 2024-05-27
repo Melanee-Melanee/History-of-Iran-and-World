@@ -1,1 +1,1 @@
-Treanslated inscriptions from [Electroninc Babylonian Library eBL](https://www.ebl.lmu.de/fragmentarium)
+Translated ancient inscriptions from [Electroninc Babylonian Library eBL](https://www.ebl.lmu.de/fragmentarium)
